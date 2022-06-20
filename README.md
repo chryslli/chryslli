@@ -1,5 +1,5 @@
 # Hey, I'm Chrystien
-#### Pronouns: She/He/They
+#### Pronouns: any
 Likes: Rem Lezar, Javascript
 
 Peace :>
